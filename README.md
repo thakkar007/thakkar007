@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @thakkar007
-- 👀 I’m interested in Data Science
-- 🌱 I’m currently learning the same
+- 👀 I’m interested in Coding. 
+- 🌱 I’m currently Exploring new things.
 - 💞️ I’m looking to collaborate on new projects for the same
 - 📫 How to reach me : email: karanthakkar9898@gmail.com 
                         whatsapp: 9428226413
